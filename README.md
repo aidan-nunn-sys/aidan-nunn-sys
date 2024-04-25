@@ -5,4 +5,4 @@ Welcome to my GitHub, where I share my projects and experiments!
 
 </br >
 
-You can contact me at www.ai.dan/
+You can contact me at aidannunn.com
